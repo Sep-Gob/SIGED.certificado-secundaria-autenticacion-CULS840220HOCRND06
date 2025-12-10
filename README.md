@@ -1,0 +1,2 @@
+# SIGED.certificado-secundaria-autenticacion-CULS840220HOCRND06
+CULS840220HOCRND06
